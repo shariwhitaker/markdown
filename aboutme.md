@@ -10,12 +10,12 @@ I most likely will get a part-time job in this field but that's just temporary.I
 ## What do I want to be ? ##
 I want to be an orthopedic surgeon. They make so much money and the type of lifestyle that  I want to have I need that money. They work with the musculoskeletal system. I think that is pretty exciting. I just don't want to be in school that long . I don't know if I have what it takes to get accepted into medical school to even make this career a reality. I most likely will change this when I enter college because ain't that what most people do ? I used to want to be a teacher for as long as I could remember then I changed my mind about that my freshman year. I had come to the conclusion that my temper and patience would not allow me to pursue that job.
 
-## Things I want to have in life  ?##
+## Things I want to have in life ? ##
 * a two story house
 * a black Mercedes Benz
 * a good paying job
 * a business
-* 2 kids with a husband
+* ~~2 kids~~ with a husband
 ## Things I want to accomplish ##
 1. graduate highschool
 2. go to college
